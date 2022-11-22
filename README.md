@@ -1,5 +1,1 @@
-# Praktikum_KB
-ini adalah posttest AI(Artificial Intelligence) / KB(Kecerdasan Buatan) by 059_Nizar
-
-Nama : Muhammad Nizar //
-NIM : 2009106059
+HEY 👋🤣😆😶‍🌫️ KIRITHOTS ⚔️🗼💞👻 IT'S 6️⃣ NOVEMBER 2️⃣0️⃣2️⃣2️⃣ AND THAT MEANS IT'S ⌛⏰⌛TIME TO GET YOUR 🎮🕹️😵 NERVE GEAR ON 😖🤤😫🤯!!!!!! Send this (⁠´⁠⊙⁠ω⁠⊙⁠`⁠)⁠→ message to 5️⃣ naughty 😈👻💦🔥🙊 beta 🤖 testers you want to form 🍆💦🍑a family 👩‍👩‍👧‍👦🏠👨‍👩‍👦💍 with when we 😍 get trapped 😬😨 in ⚔️SAO⚔️!!!!! IF you get 3️⃣ back 🔙🔙 that means YOU'RE A 🥳🥳 PRO 🎮🕹️🎮 GAMER AND WILL GET TO SUCK 😋😜🫢😏 ON ASUNAS 🍒🍒TITTIES 🍒🍒. Share ➡️➡️➡️or you'll end up being stuck on the 🥇 floor 😱🫣😡!!
